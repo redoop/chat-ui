@@ -1,2 +1,1 @@
-# www.iamaii.com
-www.iamaii.com
+# www.aidj.tv
